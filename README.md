@@ -1,0 +1,2 @@
+# SOGANGUNIVERSITY
+서강체
